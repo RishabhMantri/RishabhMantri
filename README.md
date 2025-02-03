@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analyst
 - 🌱 I’m currently learning Power-BI,SQL,Python
 - 💞️ I’m looking to collaborate on Projects
-- 📫 How to reach me [Whatsapp:- +91-7615907007
+- 📫 How to reach me [Whatsapp:- +91-7615907007]
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 
